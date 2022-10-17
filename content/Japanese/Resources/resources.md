@@ -4,7 +4,7 @@
 
 Best Resource for memorizing vocab based on interested media
 
-[JPBD.io](http://jpdb.io)
+[JPDB.io](http://jpdb.io)
 
 ## Grammar
 
