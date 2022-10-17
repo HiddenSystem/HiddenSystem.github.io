@@ -24,7 +24,8 @@
     "pasteImage.insertPattern": "![[${imageFilePath}]]",
     "search.exclude": {
         ".direnv": true
-    }
+    },
+    "task.allowAutomaticTasks": "on"
     // If use Git, these might be interesting:
     // "git.autofetch": true,
     // "git.postCommitCommand": "push"
