@@ -1,5 +1,9 @@
 # Hidden System
 
-A template for your next [Emanote] website for hosting in [[GitHub Pages]], editing in [Visual Studio Code](https://emanote.srid.ca/resources/vscode), etc.. For details, see https://github.com/srid/emanote-template.
+Hi, I'm Hidden.
 
-[Emanote]: https://emanote.srid.ca/
+Welcome to my slice of the internet.
+
+This website contains a random assortment of notes written in [Zettalkasten](https://en.wikipedia.org/wiki/Zettelkasten) style on my Japanese learning journey, as well as some personal reviews of things I've played or seen.
+
+Name of the website inspired by [morg.systems](http://morg.systems), a resource I used starting my Jananese learning journey
