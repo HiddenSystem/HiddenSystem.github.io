@@ -54,3 +54,39 @@ What I find as pros might instead turn you off the series. That's fine, but I do
 ### Trails to Azure
 
 TL;DR My favorite game so far. Go play it
+
+TLDR for myself,  (cause im too lazy to write a full thing, but I want to remind myself later of the plot, cryptic maybe spoilers ahead)
+
+Master Quartz is fun, lets you have more customization
+
+The political talk was really well written
+
+Are you negligent/responsible if you are a doctor, you could cure cancer, but you choose not to
+
+Trolley problem
+
+Randy is a cool character
+
+Parts where you go wtf is going on (in a good way). Good stuff
+
+Beating up the people who wronged you was fun
+
+Antagonists have good motives
+
+Doggy
+
+KeA
+
+Ilya
+
+Guy
+
+shizuku portrait is cursed
+
+y'know, that thing that happens in the last chapter, that was good
+
+y'know, that thing that happens in the final dungeon in the last chapter, that was good
+
+y'know, that happens in the last fight in the final dungeon in the last chapter, that was good
+
+Feels they held back on Zero to let it all out on Azure
