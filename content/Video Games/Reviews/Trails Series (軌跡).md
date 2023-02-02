@@ -48,7 +48,7 @@ What I find as pros might instead turn you off the series. That's fine, but I do
 - [Banger](https://www.youtube.com/watch?v=4lkaTGNE5ds) [music](https://www.youtube.com/watch?v=dNgph1g422Q) [from](https://www.youtube.com/watch?v=h8CmfRgxvVQ) [Falcom](https://www.youtube.com/watch?v=E8x6NUuZR5I) (WARNING: Looking up music on Youtube is EXTREMELY spoiler-prone through thumbnails and comments, beware)
 
 
-
+## Maybe spoilerinos ahead
 
 
 ### Trails to Azure
@@ -90,3 +90,34 @@ y'know, that thing that happens in the final dungeon in the last chapter, that w
 y'know, that happens in the last fight in the final dungeon in the last chapter, that was good
 
 Feels they held back on Zero to let it all out on Azure
+
+### Trails of Cold Steel 3
+
+Chapter 1 impressions:
+
+So far, the story sucks, but the gameplay is fun. It might just be the stark jump between Azure and CS3 though in terms of style and all.
+
+In general, if you like the gameplay of JRPGs, you'll be having fun
+
+Story
+- New chars that I don't care about yet that you have to babysit
+- The recurring cast are all like, "Remember the good ol' days", instead of actual new content
+- Theres so many chars that there isn't enough time given to really flesh out any single group of chars
+- These chars are very anime tropey at the moment (I think all of cold steel is more anime trope-y compared to the older games, by design probably)
+- bathing bonding moments is a bit weirdchamp
+
+Gameplay (Nightmare difficulty)
+- Brave Orders are op, but fun.
+  - Especially the defensive ones, I feel like as long as shields are up, you can't really die except through insta kills
+- The game is still challenging while making you feel op, which I feel like would be hard to do, but they accomplish that somehow
+- Even more customizability from 2 master quartz
+- GUNNER! STRIKER! 
+- Hearthstone is pretty fun, better than blade
+
+Chapter 2:
+- girls go cooking/guys go to computer class, hmmm
+- The "reveals" are just plot dumped after boss fights, it feels a bit forced
+- I do like the gameplay loop of getting your old party members a lot better than in CSII
+- Randy's personality feels a lot more beta compared to his Ao/Zero counterpart, which is kinda sad
+- New class people I kinda, I think they're just alright still. Nothing special
+- I like the new outfits for the recurring cast
