@@ -14,7 +14,11 @@ The Trails Series I've heard described as the MCU, but anime. Where a lot of the
 
 First off, the series is inheritently niche, each game is a story-focused turn-based JRPG, that takes its time to build the characters and world.
 
-What I find as pros might instead turn you off the series. That's fine, but I do hope that if you find any of the below points appealing, that you try out the series
+To take a real-ish world parallel using the Russo-Ukrainian War: This isn't a story about a Ukrainian soldier who fights against Russia. This is a story about a Ukranian citizen 1 year before Russia invades; it's about their favorite hobbies, their neighbors and friends, their favorite restaurant. As time passes, tensions slowly rise with Russia, but the story is not about the war, it's about the person who is dragged into defending their homeland.
+
+Simultaneously (or rather, in a different game), It will show you the perspective of a Russian citizen 1 year before the war, their friends and aspirations as well. The story isn't about the war, but about the person who is conscripted into the army, whose country's goals might not align with their own
+
+What I find as pros might instead turn you off the series. That's fine, but I do hope that if you find any of the above or below points appealing, that you try out the series
 
 - Top quality and well-rounded characters, banter, and world-building. This includes the antagonists, and also everyday NPCs
   - The important part about this is the attention to detail. There aren't just mundane NPCs that direct the main protagonist towards their objective, but have their own lives and worries.
