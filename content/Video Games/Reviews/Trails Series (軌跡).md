@@ -141,6 +141,7 @@ Chapter 3:
 - I like Ash, he cool
 - I like how Musse and Ash get their backstory fleshed out before Kurt does
 - Added a difficulty mod at this point, which makes game go from a cakewalk even on hardest difficulty, to taking an hour per boss fight. I prefer it this way
+- Fun tactics, hoping burn happens when you S-craft (bossfight spoilerino): https://www.youtube.com/watch?v=KSWPvHqCUtQ
 - Prologue dungeon is fun
 - Aurelia op
 - Wow something finally happens in the story
@@ -178,7 +179,8 @@ Cool things about the difficulty mod:
 - Actually having to use your full kit, instead of having to self-ban most of your moves even on nightmare difficulty because otherwise it would be too easy
 - Actually using items for once
 - Brave Orders aren't completely overpowered, and you have to use more than just the best ones
-Not so cool things
+
+Not so cool things:
 - BS rng when the bosses one shot your team before you can move
 - Break is so omega nerfed that it makes Juna pretty useless as a char
 - Forced to abuse stealth sometimes
@@ -203,4 +205,20 @@ Ch1
 - Musse joining you feels so forced, especially compared to Ash. Might just be trying to fit the entire character backstory in like one section though
 - I've grown to like Sully as a character, used to not (kind of the point I guess)
 - Crossbell is a humongous city, didnt really feel like that in Zero/Azure games but it takes quite a while to go through in CS3/4
-- 
+- I love turn limit fights.....
+- Kinda sus that only the loli characters join the party
+- We must have a boss fight, then a mech fight, then we can TP, cause plot reasons, yup
+
+Ch2
+- Rean saves his friends (by fighting them obviously)
+- Really changed my team comps by this point, made alisa into a dps
+- Ending twist was pretty obvious, just with how the story was forming
+
+CH3
+- So many sidequests
+- Gilbert hardest boss unironically
+- George one of the few still well written chars
+- Pretty formulaic story, but at least the fights are hard/fun
+- resurrection no jutsu strikes again
+- Don't really like how they use "the curse"/magic grass to explain basically everything
+- obligatory fanservice time
