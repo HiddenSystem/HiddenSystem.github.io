@@ -222,3 +222,104 @@ CH3
 - resurrection no jutsu strikes again
 - Don't really like how they use "the curse"/magic grass to explain basically everything
 - obligatory fanservice time
+
+CH3.5 Fanservice Harem Simulator (why am I a completionist, I have to view like 30 character scenes)
+- Juna, cute
+- Musse, sweet
+- Altina, heartwarming
+- Alisa, Laura, Emma, Towa, Sara, standard
+- Fie, I love feeling like a creeper
+- Alfin, meh
+- Elise, It's okay to date your sister cause they aren't blood related hell yea anime logic
+- No one, the true ending
+
+CH4
+- Much sidequests
+- Man they put in a lot of effort to make a lot of side characters playable
+- Ending is kinda whatever
+- Political stuff afterwards is cool though
+
+Mod thoughts:
+- Chars felt much more balanced
+- Defense was pretty op
+- Only had to stealth cheese like 1 fight I think
+- Critical was a little too easy to stack
+- The fact that you can stack as many secondary master quartz of the same type really trivializes fights (Boss is debuff heavy, just make everyone debuff immune, etc)
+
+Trails to Reverie
+
+Prologue
+- No difficulty mod sadge
+- The Crossbell B Team is back, forgotten for 2 games but they're back finally
+- RIP Sergei's VA
+- Looks like we beat the game, pack it up bois
+
+Ch 1 - lloyd
+- I forgot about Scarlet wow
+- Oh, Juna learned her gunbreaker skills from Noel, something I was wondering from cs3
+- Geofront music is great
+- Why are they doing the same plot point againnnnnn whyyyy I loveee magic curse bs such good writing....
+
+Ch 1 - Rean
+- I actually liked a Rean part for once, what the
+
+Ch 1 - C
+- I like the new chars
+
+Ch 2 - Lloyd
+- The "twist" was pretty obvious but is kinda weird
+    - sorta explained in a daydream (VN thing in reverie)
+
+Ch 2 - Rean / C
+- Lapis food scene was funny
+- Going back and forth in the fights is pretty cool
+- Huh they did the reveal earlier than I thought
+
+Ch 3 - Lloyd / C
+- Good music
+- Going back and forth between RF/Workshop was pretty cool
+- Totally necessary bike scene
+
+Ch 3 - C
+- Why is Jingo here 🤔
+- Best Char is back
+- Going back and forth between RF/Workshop was pretty cool
+- Dolls are scary
+- I hate turn limit fights
+
+Ch 3 - Rean
+- Break out with best char
+- What is this magic story
+
+Ch 4 - C
+- Intro scene made me laugh
+- Lapis and C are funny together
+- Arios playable for once poggers
+- The plot is off the walls with the elysium shit but it at least explains stuff
+
+Ch 4 - Lloyd
+- Standard fare, rescue our police friends in the ruins through the power of friendship
+
+Ch 4 - Rean
+- Why are we fighting Robo Mishy lol
+
+Final Chapter
+- Anti brainwash power, shoulda just done this from the beginning lol
+- Fight actually hard enough to need to cheese with infinite invincible turns
+- Ah yes, the classic: everyone in the entire city has a new dialogue option. The best and worst part of this series: reading
+- Man so many largely pointless sidequests before the final dungeon
+- EVERYBODY IS HERE: the cutscene
+
+Final Fight and Scenes
+- Ending fight takes 3 hours lol....
+- I feel like the Ishmelga Rean stuff was very much a completely new plot device that they just added and resolved in like just the ending. Probably needs to be fleshed out more
+- The power of TP
+- Olivier still great
+
+Overall thoughts
+- Liked C and Crew
+- Liked the way the story was segmented into parts, helps with the large cast
+- Gameplay was same-y (no difficulty mod so I just cheesed most of the fights)
+- The new story stuff was wild but at least it isn't like brainwash "the curse"... oh wait it is sometimes
+- Music was great
+- TRC is like just fanservice / grindy stuff but it is completely optional at least
